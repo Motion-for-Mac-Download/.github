@@ -1,6 +1,6 @@
 # Motion for Mac Download - Ultimate Motion Graphics Design Suite
 
-![Motion Pro Screenshot](https://static.macupdate.com/screenshots/333424/m/motion-screenshot.png)
+![Motion Pro Screenshot](https://i.ytimg.com/vi/sx021E_9O7M/hq720.jpg)
 
 ---
 
